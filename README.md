@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @qDoer
+- 👀 I’m interested in hot women.
+- 🔥 I’m currently horny and unemployed.
+- 💞️ I’m looking to acquire a gf.
